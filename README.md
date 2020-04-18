@@ -1,2 +1,2 @@
 # fuadaliyare.github.io
-                      My    Profolio    Wedpage
+                     Lazy Wedpage
